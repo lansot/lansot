@@ -1,4 +1,4 @@
-### Hi there 👋
+haha comnputer keyboard go chkchkchkchkcLACKCLACKCLACK
 
 <!--
 **lansot/lansot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
