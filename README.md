@@ -1,4 +1,4 @@
-haha comnputer keyboard go chkchkchkchkcLACKCLACKCLACK
+yes: most of my repositories are private at the moment
 
 <!--
 **lansot/lansot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
